@@ -7,4 +7,4 @@ Meu nome é Carolina Aimee Gaertner
   ### Você pode entrar em contato comigo 📫
   carolina.gaertner@escola.pr.gov.br
 
-![](https://media.tenor.com/i1cq38PPFfIAAAAC/harry-potter.gif)
+![](https://media.tenor.com/4wAtE3WwF1wAAAAd/space-gif-space.gif)
